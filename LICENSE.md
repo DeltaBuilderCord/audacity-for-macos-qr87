@@ -1,4 +1,4 @@
-
+Audacity for macOS premium Extension: glitch-effect & social-media-export offers the most advanced Audacity for macOS extension, with glitch-effect and social-media-export. Ideal
 
 
 
